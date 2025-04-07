@@ -1,0 +1,2 @@
+# RAIN-2
+RAIN &amp; GENERATIVE AI
